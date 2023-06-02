@@ -2,3 +2,4 @@
 - 👀 I’m interested in overall improvement. A shallow statement, but one I take to heart.
 - 🌱 I’m currently learning.
 - 📫 How to reach me: Jorp#0001 on discord.
+- 🐦 Pfp made by @melon__official
