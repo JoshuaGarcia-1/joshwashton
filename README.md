@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @joshwashton
-- 👀 I’m interested in learning how do to the things that I currently don't know how to do (i.e coding).
-- 🌱 I’m currently learning pretty much everything I can attempt at understanding (Python for the most part)
-- 💞️ I’m looking to collaborate on anything, if you're willing to put me in your team that is.
-- 📫 How to reach me: through here, though I cannot guarantee that I'll see your message for 5-10 business weeks. Or through e-mail, which is much more reliable (g.joshua1206@gmail.com)
+- 👀 I’m interested in overall improvement. A shallow statement, but one I take to heart.
+- 🌱 I’m currently learning.
+- 📫 How to reach me: Jorp#0001 on discord.
